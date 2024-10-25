@@ -1,2 +1,1 @@
-# cod
-lessgooooo
+starting...
